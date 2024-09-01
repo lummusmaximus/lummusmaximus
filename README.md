@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning at conmputers
 - 💞️ I’m looking to collaborate on at conmputers
 - 📫 How to reach me at conmputers: hello
-- 😄 Pronouns: 
 - ⚡ Fun fact: im at at conmputers
 
 <!---
